@@ -6,7 +6,8 @@
 
 ```iwcuf/w2i/c+h highly enc !! (unless dni)```
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](blinkiesCafe-du.gif)
+
+‎![](blinkiesCafe-du.gif)
 ‎ ‎ ‎ ‎ ‎ ‎𞄶𝇅𝆺𝅥𝅯𝄘ࠗٞ🕰️𝅬𝅥𝁽 ‎ ‎ ‎ ‎ ‎ 
 ![](blinkiesCafe-fJ.gif)
 
