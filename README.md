@@ -4,7 +4,7 @@
 ![.](282b55ff.gif)
 
 
-```iwcuf/w2i/c+h !! (unless dni)```
+```iwcuf/w2i/c+h highly enc !! (unless dni)```
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](blinkiesCafe-du.gif)
 ‎ ‎ ‎ ‎ ‎ ‎𞄶𝇅𝆺𝅥𝅯𝄘ࠗٞ🕰️𝅬𝅥𝁽 ‎ ‎ ‎ ‎ ‎ 
@@ -18,7 +18,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F8BA64&width=435&lines=okay,+its+yours+anyway.)](https://git.io/typing-svg)
 
-_𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ ᴏᴘᴇɴ 𝟸 ᴍᴇᴇᴛ ɴᴇᴡ ᴘᴇᴏᴘʟᴇ_
+_𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ ᴏᴘᴇɴ 𝟸 ᴍᴇᴇᴛ ɴᴇᴡ ᴘᴇᴏᴘʟᴇ !! 𝄪 
 
 ‎_ ‎ ‎ 𝁼🥨ྀི  ‎ ‎ ‎‎‎ ‎  ‎
 ‎ ‎„ ᴍᴏsᴛʟʏ ᴀᴄᴛɪᴠᴇ ɪɴ ᴘᴛ! (ᴜɴʟᴇss ʙᴜsʏ) "‎_‎ ‎ ‎ ‎ ‎ ‎ ‎ 𝄪
