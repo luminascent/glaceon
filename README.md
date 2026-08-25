@@ -3,6 +3,8 @@
 ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
 ![.](282b55ff.gif)
 
+![Profile Views](https://komarev.com/ghpvc/?username=luminascent&label=Profile%20views&color=F39124&style=social&abbreviated=true)
+
 
 ```iwcuf/w2i/c+h highly enc !! (unless dni)```
 
