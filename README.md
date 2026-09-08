@@ -1,9 +1,11 @@
-  ‎ ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
+![Profile Views](https://komarev.com/ghpvc/?username=luminascent&label=Profile%20views&color=F39124&style=social&abbreviated=true)
+
+   
+   
+   ‎ ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
 ![.](282b55ff.gif)![.](2819e710.gif)
 ![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)![.](282b55ff.gif)![.](2819e710.gif)
 ![.](282b55ff.gif)
-
-![Profile Views](https://komarev.com/ghpvc/?username=luminascent&label=Profile%20views&color=F39124&style=social&abbreviated=true)
 
 
 ```iwcuf/w2i/c+h highly enc !! (unless dni)```
@@ -17,17 +19,17 @@
 
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=B94C0D&width=435&lines=you+want+a+taste+of+my+brain?)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=B94C0D&width=435&lines=𝚓𝚞𝚜𝚝+𝚒𝚗+𝚝𝚑𝚎+𝚗𝚒𝚌𝚔+𝚘𝚏+𝚃𝙸𝙼𝙴!)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F8BA64&width=435&lines=okay,+its+yours+anyway.)](https://git.io/typing-svg)
 
-_𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ ᴏᴘᴇɴ 𝟸 ᴍᴇᴇᴛ ɴᴇᴡ ᴘᴇᴏᴘʟᴇ !! 𝄪 
 
-‎_ ‎ ‎ 𝁼🥨ྀི  ‎ ‎ ‎‎‎ ‎  ‎
-‎ ‎„ ᴍᴏsᴛʟʏ ᴀᴄᴛɪᴠᴇ ɪɴ ᴘᴛ! (ᴜɴʟᴇss ʙᴜsʏ) "‎_‎ ‎ ‎ ‎ ‎ ‎ ‎ 𝄪
+```_𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ ᴏᴘᴇɴ 𝟸 ᴍᴇᴇᴛ ɴᴇᴡ ᴘᴇᴏᴘʟᴇ !! 𝄪```
 
-‎ ‎ __‎ ‎  ´͈  ᵕ `͈ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎  ‎  ‎ ғᴀɴᴅᴏᴍs ɪɴᴛ ᴘʟs
-‎ ‎ ‎ ‎ ‎ ‎ ᛝ__
+‎```_ ‎ ‎ 𝁼🥨ྀི  ‎ ‎ ‎‎‎ ‎  ‎
+‎ ‎„ ᴍᴏsᴛʟʏ ᴀᴄᴛɪᴠᴇ ɪɴ ᴘᴛ! (ᴜɴʟᴇss ʙᴜsʏ) "‎_‎ ‎ ‎ ‎ ‎ ‎ ‎ 𝄪```
+
+‎ ‎ ```__‎ ‎  ´͈  ᵕ `͈ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎  ‎  ‎ ғᴀɴᴅᴏᴍs ɪɴᴛ ᴘʟs
+‎ ‎ ‎ ‎ ‎ ‎ ᛝ__```
 
 ![.](Untitled606_20260821231219.png) ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  
 
@@ -45,9 +47,6 @@ _𝁽🌱𝆊 ‎ ‎ ‎ ‎  „ ᴅᴏɴᴛ ʙᴇ sʜʏ ᴛᴏ ɪɴᴛ! ɪᴍ
   
 [ʳᵒᵃᵈᵇˡᵒᶜᵏˢ](https://www.roblox.com/share?code=ac2b8bd8246f914984f1e328e7e8c7a0&type=Profile&source=ProfileShare&stamp=1787322111313)
 
-[ᵖʳᵒⁿᵒᵘⁿˢ.ᶜᶜ](https://pronouns.cc/@luminascent)
-
-[ᵇˢᵏʸ](https://bsky.app/profile/luminascent.bsky.social) ⬅️ *where i post my art*
 
 
 ***[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold+Code&pause=1000&color=930000&width=500&lines=P.S:+MY+SITES+ARE+CURRENTLY+WIP!)](https://git.io/gradient-svg)***
