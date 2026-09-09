@@ -1,18 +1,18 @@
-𝄪 ‎ ![.](282b55ff.gif) ![.](2819e710.gif) ![.](282b55ff.gif) ![.](2819e710.gif)
-![.](282b55ff.gif) ![.](2819e710.gif)
- ![.](282b55ff.gif) ![.](2819e710.gif) ![.](282b55ff.gif) ![.](2819e710.gif) ![.](282b55ff.gif) 
+𝄪   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ![.](05b8a5b3.gif) ![.](2819e710.gif) ![.](2819e710.gif)
+![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif) ![.](05b8a5b3.gif) 
+
+‎ ‎𞄶𝇅𝆺𝅥𝅯𝄘ࠗٞ🕰️𝅬𝅥𝁽 ‎ ‎ ‎ ‎ ‎ 
 
 ![croissants](https://komarev.com/ghpvc/?username=luminascent&label=croissants%20&color=F39124&style=social&abbreviated=true)
 
 
 
-![.](282b55ff.gif)  ```ⁱʷᶜᵘᶠ/ʷ²ⁱ/ᶜ⁺ʰ ʰⁱᵍʰˡʸ ᵉⁿᶜ !! ⁽ᵘⁿˡᵉˢˢ ᵈⁿⁱ⁾```
+_ 𝁼![.](282b55ff.gif)  ```ⁱʷᶜᵘᶠ/ʷ²ⁱ/ᶜ⁺ʰ ʰⁱᵍʰˡʸ ᵉⁿᶜ !! ⁽ᵘⁿˡᵉˢˢ ᵈⁿⁱ⁾```
 
 
 
 ‎![](c45.gif)
-‎ ‎ ‎ ‎ ‎ ‎𞄶𝇅𝆺𝅥𝅯𝄘ࠗٞ🕰️𝅬𝅥𝁽 ‎ ‎ ‎ ‎ ‎ 
-![](blinkiesCafe-fJ.gif)
+‎ ‎ ‎![](blinkiesCafe-fJ.gif)
 
 ![Project image](ezgif-234f105ab7f8e4dc.gif)
 
@@ -54,7 +54,6 @@ _𝁽![.](282b55ff.gif) ```‎ ‎ ‎ ‎  „ ᵈᵒⁿᵗ ᵇᵉ ˢʰʸ ᵗ�
 
 </div>
 
- ![.](282b55ff.gif) ![.](2819e710.gif) ![.](282b55ff.gif) ![.](2819e710.gif)
- ![.](282b55ff.gif) ![.](2819e710.gif)
- ![.](282b55ff.gif) ![.](2819e710.gif) ![.](282b55ff.gif) ![.](2819e710.gif)
- ![.](282b55ff.gif) 
+𝄪   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ![.](05b8a5b3.gif) ![.](2819e710.gif) ![.](2819e710.gif)
+![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif) ![.](05b8a5b3.gif) 
+
