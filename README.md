@@ -37,7 +37,7 @@ _𝁽![.](282b55ff.gif) ```‎ ‎ ‎ ‎  „ ᵈᵒⁿᵗ ᵇᵉ ˢʰʸ ᵗ�
 𝁼𐂯 
 ‎ ‎ ‎ ‎ ‎  
  [ᵈⁱˢᶜ𐂴ʳᵈ !](https://discord.gg/jGjrUNRy)
-‎ ‎ ‎ ‎ ‎ 𓂃
+‎ ‎ ‎ ‎ ‎ 
 
  [ᵃᵗᵃᵇᵒᵒᵏ!! (wip)](https://luminascent.atabook.org/?page=1)
 
