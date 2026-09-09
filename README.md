@@ -49,12 +49,7 @@ _𝁽![.](282b55ff.gif) ```‎ ‎ ‎ ‎  „ ᵈᵒⁿᵗ ᵇᵉ ˢʰʸ ᵗ�
 
 
 
-***[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold+Code&pause=1000&color=930000&width=500&lines=P.S:+MY+SITES+ARE+CURRENTLY+WIP!)](https://git.io/gradient-svg)***
-
-  
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-
-
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 </div>
