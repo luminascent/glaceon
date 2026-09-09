@@ -38,19 +38,19 @@ _𝁽![.](282b55ff.gif) ```‎ ‎ ‎ ‎  „ ᵈᵒⁿᵗ ᵇᵉ ˢʰʸ ᵗ�
 
 𝁼𐂯 
 ‎ ‎ ‎ ‎ ‎  
- [ᵈⁱˢᶜ𐂴ʳᵈ !](https://discord.gg/jGjrUNRy)
+ _ 𝁼![.](282b55ff.gif)[ᵈⁱˢᶜ𐂴ʳᵈ !](https://discord.gg/jGjrUNRy)
 ‎ ‎ ‎ ‎ ‎ 
 
- [ᵃᵗᵃᵇᵒᵒᵏ!! (wip)](https://luminascent.atabook.org/?page=1)
+ _ 𝁼![.](282b55ff.gif)[ᵃᵗᵃᵇᵒᵒᵏ!! (wip)](https://luminascent.atabook.org/?page=1)
 
-[ᵗᵘᵐᵇˡʳ](https://www.tumblr.com/luminascent?source=share)
+_ 𝁼![.](282b55ff.gif)[ᵗᵘᵐᵇˡʳ](https://www.tumblr.com/luminascent?source=share)
   
 **STRAW CURRENTLY WIP**!
   
-[ʳᵒᵇˡᵒˣ](https://www.roblox.com/share?code=ac2b8bd8246f914984f1e328e7e8c7a0&type=Profile&source=ProfileShare&stamp=1787322111313) (barely use it)
+_ 𝁼![.](282b55ff.gif)[ʳᵒᵇˡᵒˣ](https://www.roblox.com/share?code=ac2b8bd8246f914984f1e328e7e8c7a0&type=Profile&source=ProfileShare&stamp=1787322111313) (barely use it)
 
-
-
+![.](c3.gif) ![.](c49.gif)
+❤️‍🩹 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
