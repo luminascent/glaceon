@@ -1,21 +1,19 @@
 ![.](05b8a5b3.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif) ![.](2819e710.gif) ![.](2819e710.gif)
 ![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](05b8a5b3.gif) 
 
- ‎ ‎𞄶𝇅𝆺𝅥𝅯𝄘ࠗٞ🕰️𝅬𝅥𝁽 ‎ ‎⟡ ‎ ‎ 𝗹𝘂ׂ𝗺𝗶 / 𝚝𝗶𝗺ekeeper 
- 
+lumi / timekeeper
  ‎ ‎ ‎ ‎  ![.](tumblr_177ab49da12438eb03e71b081fee2301_fae768f8_75.png)![.](Untitled667_20260909161901.png)
 
 ![croissants](https://komarev.com/ghpvc/?username=luminascent&label=croissants%20&color=F39124&style=social&abbreviated=true)
 
 
 
-_ 𝁼![.](282b55ff.gif)  ```ⁱʷᶜᵘᶠ/ʷ²ⁱ/ᶜ⁺ʰ ʰⁱᵍʰˡʸ ᵉⁿᶜ !! ⁽ᵘⁿˡᵉˢˢ ᵈⁿⁱ⁾```
+![.](282b55ff.gif)  ```ⁱʷᶜᵘᶠ/ʷ²ⁱ/ᶜ⁺ʰ ʰⁱᵍʰˡʸ ᵉⁿᶜ !! ⁽ᵘⁿˡᵉˢˢ ᵈⁿⁱ⁾```![.](282b55ff.gif)
 
 ![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif) ![.](2819e710.gif) ![.](2819e710.gif)
 ![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)![.](2819e710.gif)
 
-
-<div align="center">
+![.](Untitled665_20260909145559.png) ‎
   
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=B94C0D&width=435&lines=𝚓𝚞𝚜𝚝+𝚒𝚗+𝚝𝚑𝚎+𝚗𝚒𝚌𝚔+𝚘𝚏+𝚃𝙸𝙼𝙴!)](https://git.io/typing-svg)
 
